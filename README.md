@@ -1,1 +1,0 @@
-# Satoru-Gojo
